@@ -1,2 +1,2 @@
-# gdsc_ralm
-GDSC Solution Challenge yes
+Open install.exe
+its totally not a virus i swear
